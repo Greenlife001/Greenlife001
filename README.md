@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Greenlife001
-- 👀 I’m interested in community development addressing immediate financial problems and health by doing conservation activities by engaging in fun adventures through young lives. 
+- 👀 I’m interested in community development addressing immediate financial problems and mental health&abusivedrugsawarenesstalks by doing conservation activities themed:#1milliontrees #campaigns by engaging in fun adventures through mentorship of talents in young lifes. 
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...with people of same mindset and good will
 - 📫 How to reach me ...
